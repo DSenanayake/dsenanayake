@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hey there 👋
 
 - ⚡ Fun fact: "I'm always busy :D"
 
